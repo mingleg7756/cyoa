@@ -1,4 +1,4 @@
 ## What type of you want to buy?
 
-### [lamborghini](Lamborghini-option.md)
+### [Lamborghini](Lamborghini-option.md)
 ### [Bugatti](Bugatti-option.md)
