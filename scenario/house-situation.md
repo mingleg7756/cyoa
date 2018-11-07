@@ -1,4 +1,1 @@
-## Your house caught on fire. Luckily you bought insurance and got most of your money back
-
-[Walk away](walk_away-situation.md)  
-[Invest more](invest_more-situation.md)
+## Unfortunately, you went to sleep and forgot to close the stove. Your house explodes and gg for you.
