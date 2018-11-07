@@ -1,2 +1,0 @@
-## It turns out that your lover really needed you. Because you didn’t pick up the phone, your lover decided to break up with you. Now you’re back being a loner. Good luck getting another lover. Lmao
-
