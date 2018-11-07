@@ -1,3 +1,1 @@
-## It turns out that your lover really needed you. Because you didn’t pick up the phone. Your lover decide to break up with you. Now you’re back being a loner.  
-
-### 
+## It turns out that your lover really needed you. But because you didn’t pick up the phone, your lover decides to break up with you. Now you’re back being a loner. Good luck getting another lover. Lmao
