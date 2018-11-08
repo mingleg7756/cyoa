@@ -1,1 +1,1 @@
-## Your Bugatti got overheated and explodes
+## As you are driving, you decide to overspeed to showoff and impress the handsome male driver at your left and the beautiful lady at your right. Unfortunately, your bugatti overheats and explodes. The bugatti is gone and so is your life. 
