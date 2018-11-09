@@ -1,2 +1,2 @@
-## Your dog got hit by a car, and you lost everything after investing more money into the stock market. Now you're back to being homeless. HAHA LOSER!
+### You’re very lucky! You got all of your money back plus additional 10 billion dollars. However, on your way home, one of the top 3 wanted international criminal, Mr.Mueller, approaches you and rob all your money. 
 
